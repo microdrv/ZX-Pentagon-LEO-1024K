@@ -10,3 +10,6 @@ Changes were made to the board:
 
 
 https://www.pcbway.com/project/shareproject/ZX_Spectrum_Pentagon_LEO_1024k_a98fc015.html
+
+
+https://t.me/ZX_PENTAGON_LEO
