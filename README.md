@@ -13,3 +13,6 @@ https://www.pcbway.com/project/shareproject/ZX_Spectrum_Pentagon_LEO_1024k_a98fc
 
 
 https://t.me/ZX_PENTAGON_LEO
+
+You can donate for the development of the project. Thank you.
+https://www.paypal.com/donate/?hosted_button_id=R6RPBKJ2CDRB6
